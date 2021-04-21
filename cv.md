@@ -34,8 +34,6 @@ Experience
 </div>
 
 
-
-
 Education 
 ---
 
